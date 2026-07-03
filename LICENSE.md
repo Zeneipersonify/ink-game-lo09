@@ -1,4 +1,4 @@
-#  
+#  best Scripts for ink game offers the most advanced ink game Script, with one-hit kill and auto-farm. Perfect for dominating any match.
 
 
 
